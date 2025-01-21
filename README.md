@@ -8,4 +8,4 @@
 KEEP SUPPLEMENTATION SIMPLE Whether You're Using Lysine For Cold Sores, For Immune Support, To Promote Healthy Bones Or For Another Purpose, Amazing Nutrition Makes It Easy To Benefit From The Amino Acid L- Lysine. Our L-Lysine 1000mg Tablets Provide The Most Recommended Dosage By Taking Just 1 To 2 Tablets Per Day!
 
 # A POTENT FORM OF LYSINE Amazing Nutrition L-Lysine 1000mg Tablets Contain L-Lysine Hcl, A Form That Is Believed To Be Easy For The Body To Absorb And Utilize
-![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg)
+
